@@ -19,7 +19,7 @@ We’re always looking for passionate individuals who share our vision. Whether 
 
 Have questions or ideas? We’d love to hear from you:
 
-- **Email**: [spaciery@example.com](mailto:spaciery@example.com)
+- **Email**: [spaciery@example.com](mailto:spaciery@gmail.com)
 - **Or reach out to**:
   - [samintejas@gmail.com](mailto:samintejas@gmail.com)
   - [abishekkartha@gmail.com](mailto:abishekkartha@gmail.com)
