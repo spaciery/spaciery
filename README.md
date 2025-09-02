@@ -19,8 +19,6 @@ We’re always looking for passionate individuals who share our vision. Whether 
 Have questions or ideas? We’d love to hear from you:
 
 - **Email**: [spaciery@gmail.com](mailto:spaciery@gmail.com)
-- **Or reach out to**:
-  - [samintejas@gmail.com](mailto:samintejas@gmail.com)
-  - [abishekkartha@gmail.com](mailto:abishekkartha@gmail.com)
+- **Reach out to Byteberry for Custome solutions and services**: [hello@byteberry.de](mailto:hello@byteberry.de)
 
 ---
